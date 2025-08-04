@@ -144,4 +144,4 @@ Interested in custom AI solutions for your specific needs? I specialize in:
 - **Internal tools powered by AI logic**
 - **Quality assurance and testing automation**
 
-[📬 Contact me](mailto:contact@atulinkedin.com) or [Connect on LinkedIn](https://www.linkedin.com/in/atulinkedin)
+[📬 Contact me](mailto:atul.upadhyay@gmail.com) or [Connect on LinkedIn](https://www.linkedin.com/in/atulinkedin)
